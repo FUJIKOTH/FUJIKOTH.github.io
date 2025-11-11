@@ -1,0 +1,1 @@
+# fujikoth.github.io
